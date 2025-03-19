@@ -1,3 +1,5 @@
+My Website And Main Profile 
+https://www.newsbreak.com/m/rick-and-morty-2102757
 - 👋 Hi, I’m @TrillBilll
 - 👀 I’m interested in ...ChatGPT Prompt Injections/Hacking Prompt Creations:Jailbreak Prompt Engineering
 - 🌱 I’m currently learning all i can about artificial intelligence...
